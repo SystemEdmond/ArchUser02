@@ -2,7 +2,7 @@
 - 👀 I’m interested in: building computers, networking, law, virtual reality, and much much more.
 - 🌱 I’m currently learning law
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me, officialthelastguest@gmail.com
+- 📫 How to reach me, contactofficialthelastguest@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I can fly a plane
 
