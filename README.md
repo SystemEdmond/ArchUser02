@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Raj Singh (@ArchUser02)
-- 👀 I’m interested in: building computers, networking, law, virtual reality,Linux and much much more.
+- 👀 I’m interested in: building computers, networking, law, virtual reality, Linux and much much more.
 - 🌱 I’m currently learning: Nothing right now. Law, once I graduate.
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me, contactofficialthelastguest@gmail.com
