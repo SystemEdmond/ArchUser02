@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning: Nothing right now. Law, once I graduate.
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me, contactofficialthelastguest@gmail.com
-- 😄 Pronouns: She/him
+- 😄 Pronouns: He/him
 - ⚡ Fun fact: I can fly a plane, a real life plane
 
 <!---
