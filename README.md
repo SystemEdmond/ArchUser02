@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Karla Smiles (@ArchUser02)
+- 👋 Hi, I’m Edmond Dantes (@SysyemEdmond)
 - 👀 I’m interested in: building computers, networking, law, virtual reality, Linux and much much more.
 - 🌱 I’m currently learning: Nothing right now. Law, once I graduate.
 - 💞️ I’m looking to collaborate on anything
